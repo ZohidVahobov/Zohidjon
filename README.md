@@ -1,0 +1,2 @@
+# Zohidjon
+Prosta qiziqish
